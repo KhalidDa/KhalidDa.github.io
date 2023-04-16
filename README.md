@@ -1,2 +1,0 @@
-# KhalidDa.github.io
-wobsite
